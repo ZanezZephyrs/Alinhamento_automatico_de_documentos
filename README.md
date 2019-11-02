@@ -1,0 +1,1 @@
+# Alinhamento_automatico_de_documentos
